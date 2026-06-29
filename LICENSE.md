@@ -1,4 +1,4 @@
-#  
+#  Experience minecraft like never before with minecraft vip Script, the #1 Script. Includes teleport and instant win for unbeatable performance.
 
 
 
